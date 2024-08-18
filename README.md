@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Blue-Moon-Box
+- 👀 I’m interested in NOTHING
+- 🌱 I’m currently learning school things
+- 💞️ I’m looking to collaborate on NOTHING
+- 📫 How to reach me Idk-Discord
+- 😄 Pronouns: Any and All
+- ⚡ Fun fact: I eat tissue bc yummy
